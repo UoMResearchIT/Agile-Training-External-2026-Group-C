@@ -17,7 +17,7 @@
 
 ## Method (step-by-step instructions)
 
-1. Put the egg yolks into a bowl, finely grate in the Parmesan, season with pepper, then mix well with a fork and put to one side.
+1. Put the egg yolks into a bowl, finely grate in the parmesan, season with pepper, then mix well with a fork and put to one side.
 2. Cut any hard skin off the pancetta and set aside, then chop the meat into small cubes.
 3. Cook the spaghetti in a large pan of boiling salted water until al dente. This should take around 10 minutes. 
 4. Meanwhile, rub the pancetta skin, if you have any, all over the base of a medium frying pan (this will add fantastic flavour, or use 1 tablespoon of oil instead), then place over a medium-high heat.
