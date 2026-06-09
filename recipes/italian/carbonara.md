@@ -24,7 +24,7 @@
 5. Peel the garlic, then crush with the palm of your hand, add it to the pan and leave it to flavour the fat for 1 minute. Stir in the pancetta, then cook for 4 minutes, or until it starts to crisp.
 6. Pick out and discard the garlic from the pan, then, reserving some of the cooking water, drain and add the spaghetti. Toss well over the heat so it really soaks up all that lovely flavour, then remove the pan from the heat.
 7. Add a splash of the cooking water and toss well, season with pepper, then pour in the egg mixture – the pan will help to cook the egg gently, rather than scrambling it. Toss well, adding more cooking water until it’s lovely and glossy.
-8. Serve with a grating of Parmesan and an extra twist of pepper.
+8. Serve with a grating of parmesan and an extra twist of pepper.
 
 ## Serving Suggestions
 
