@@ -14,7 +14,6 @@
 - 1 clove of garlic
 - extra virgin olive oil
 - black pepper
-- 
 
 ## Method (step-by-step instructions)
 
@@ -36,6 +35,4 @@
 
 <img width="440" height="400" alt="image" src="https://github.com/user-attachments/assets/94ec522e-8025-480a-bfac-adc1825a3368" />
 
-
-For help with writing Markdown, see [The Markdown Guide](https://www.markdownguide.org/).
 
